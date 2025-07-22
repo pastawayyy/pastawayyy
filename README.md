@@ -45,6 +45,8 @@
 - 📧 [samiyaahmed1234@gmail.com](mailto:samiyaahmed1234@gmail.com)
 - 🌐 https://www.linkedin.com/in/samiyaaaa/
 
+###### You have now reached the end of my page ☺️
+<img src="https://github.com/user-attachments/assets/f1781391-f777-4243-aa14-92e5e1f866c1" width="150" height="150">
 
 
 
